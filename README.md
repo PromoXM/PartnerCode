@@ -4,7 +4,7 @@ Maximize your trading potential with XM's biggest promo ever! This June, celebra
 
 **Partner Code: `PY8GQ`**
 
-[![XM Partner Code PY8GQ Anniversary](XMPartnerCodePY8GQAnniversary.jpg)]
+![XM Partner Code PY8GQ Anniversary](XMPartnerCodePY8GQAnniversary.jpg)
 
 ---
 
