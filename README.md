@@ -39,7 +39,7 @@ This month, participate in a new bonus promotion each week, for a total of $15,0
 
 ## Why Use XM Partner Code PY8GQ?
 
-Using Partner Code **PY8GQ** unlocks the incredible 15-Year Anniversary Promo, and also gives you access to ongoing benefits:
+Using XM Partner Code **PY8GQ** unlocks the incredible 15-Year Anniversary Promo, and also gives you access to ongoing benefits:
 
 * **The $15,000 Anniversary Bonus:** Your primary benefit in June 2025 – double your deposits up to $15,000 over the promo period.
 * **Risk-Free Start with $30 No-Deposit Bonus:** Still available! Claim a $30 No-Deposit Bonus to explore XM’s platform without any initial investment. Test strategies and experience the platform with no risk.
@@ -48,7 +48,7 @@ Using Partner Code **PY8GQ** unlocks the incredible 15-Year Anniversary Promo, a
 
 ---
 
-## What You Get With Partner Code PY8GQ in June 2025:
+## What You Get With XM Partner Code PY8GQ in June 2025:
 
 1.  **Up to $15,000 Anniversary Deposit Bonus:** Participate in the weekly promotions. For example, if you trade 25 lots in a promo week, you can claim a 100% bonus up to $3,750 on your deposits the following week. Deposit $3,750, trade with $7,500! Repeat across all 4 promo weeks to aim for the $15,000 total.
 2.  **$30 No-Deposit Bonus:** Just for signing up with code **PY8GQ** and completing verification!
@@ -69,7 +69,7 @@ Using Partner Code **PY8GQ** unlocks the incredible 15-Year Anniversary Promo, a
 
 ## Terms and Conditions (Highlights):
 
-When you use code **`PY8GQ`**, you receive multiple bonuses. Key conditions:
+When you use XM Partner Code **`PY8GQ`**, you receive multiple bonuses. Key conditions:
 
 * **15-Year Anniversary Deposit Bonus (Up to $15,000):**
     * Promo Period: 2 - 29 June 2025.
@@ -146,7 +146,7 @@ Combine the anniversary bonus with XM’s exceptional services and unbeatable tr
 
 ## Frequently Asked Questions (FAQs)
 
-### About Partner Code PY8GQ & General Bonuses:
+### About XM Partner Code PY8GQ & General Bonuses:
 
 **What is XM Partner Code PY8GQ?**
 A free referral code that primarily unlocks XM’s 15-Year Anniversary 100% Deposit Bonus up to $15,000 (June 2-29, 2025). It also provides a $30 No-Deposit Bonus and access to the LOT Rebate Program.
@@ -195,7 +195,7 @@ Yes. When you open your first account with XM using code `PY8GQ`, you are eligib
 
 ## Ready to Start Trading with XM's BIGGEST Exclusive Bonus?
 
-Use partner code **`PY8GQ`** during registration to unlock the **100% Deposit Bonus up to $15,000** for XM's 15-Year Anniversary, plus your $30 No-Deposit Bonus!
+Use XM Partner Code **`PY8GQ`** during registration to unlock the **100% Deposit Bonus up to $15,000** for XM's 15-Year Anniversary, plus your $30 No-Deposit Bonus!
 
 
 ---
