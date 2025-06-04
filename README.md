@@ -1,8 +1,8 @@
 # XM Partner Code PY8GQ – Unlock XM’s 15-Year Anniversary Special: 100% Deposit Bonus Up To $15,000!
 
-Maximize your trading potential with XM's biggest promo ever! This June, celebrate XM’s 15-year anniversary and claim a **100% deposit bonus up to $15,000** using Partner Code **PY8GQ**. Plus, access other exclusive benefits designed to boost your Forex and CFD trading.
+Maximize your trading potential with XM's biggest promo ever! This June, celebrate XM’s 15-year anniversary and claim a **100% deposit bonus up to $15,000** using XM Partner Code **PY8GQ**. Plus, access other exclusive benefits designed to boost your Forex and CFD trading.
 
-**Partner Code: `PY8GQ`**
+**XM Partner Code: `PY8GQ`**
 
 ![XM Partner Code PY8GQ Anniversary](XMPartnerCodePY8GQAnniversary.jpg)
 
